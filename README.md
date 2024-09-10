@@ -1,4 +1,4 @@
-## [**7SLOTS'A KAYIT OLARAK BİG BASS BONANZA OYNAMAK İÇİN TIKLAYIN**](https://go.click.ly/IeUXC)
+## [**EN İYİ SLOT SİTESİNE KAYIT OLARAK BİG BASS BONANZA OYNAMAK İÇİN TIKLAYIN**](https://go.click.ly/IeUXC)
 <br>
 <br>
 <br>
